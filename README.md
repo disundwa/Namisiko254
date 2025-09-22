@@ -1,2 +1,2 @@
 # Namisiko254
-Blessed
+Blessed!
